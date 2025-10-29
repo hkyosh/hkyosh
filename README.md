@@ -6,11 +6,13 @@ byi: HI i dont bite, but maybe sometimes i'd be a bit awkward erm. and SORRY if 
 
 dni: basic dni criteria ok, no weirdo and anything 
 
-follow me to get free bread 🥖🍞 [twitter](https://x.com/hkyo_xo) , [tiktok](https://www.tiktok.com/@kyox.o?_t=ZS-8ym99Zhofmz&_r=1)
+follow me to get free bread 🥖🍞 [twitter](https://x.com/hkyo_xo) , [tiktok](https://www.tiktok.com/@kyooqi)
 
 中文/粤语/eng/malay = OK! 
 
 #1 rufus shinra fan lalala I LOVE YOU MR PRESIDENT
+
+i love u hanakago tsubasa
 
 yume: rufus shinra (non.sharing), light yagami (sel.sharing) , evernight (sharing?? sel.sharing?? idk but im ok w doubles for now)
 
