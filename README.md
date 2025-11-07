@@ -12,9 +12,7 @@ follow me to get free bread 🥖🍞 [twitter](https://x.com/shy4uo) , [tiktok](
 
 #1 rufus shinra fan lalala I LOVE YOU MR PRESIDENT
 
-i love u hanakago tsubasa
-
-yume: rufus shinra (non.sharing), light yagami (sel.sharing)
+i love hsr, niji jp, ff7, deathnote, and more more more hehehaha wahahahaa
 
 whoever keep on unfollowing me i will find all of you. slash threat.
 
