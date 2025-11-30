@@ -4,15 +4,13 @@
 
 中文/eng = OK! 
 
-byi: sorry if i sometimes dont reply back, i dont rlly find long conversations enjoying unless i'm in the mood for it. + i tend to find problematic characters interesting (light, griffith, johan, etc) but that NEVER means i support or defend their wrongdoing. i simply like them for their writings, lore, etc. if you still think i'm weird or feel uncomfortable, feel free to block me. 
+byi: sorry if i sometimes dont reply back, i dont rlly find long conversations enjoying unless i'm in the mood for it.
 
 dni: basic dni criteria + if you dislike any of my interests
 
 follow me/be my oomf to get free bread 🥖🍞 [twitter](https://x.com/shy4uo) , [tiktok](https://www.tiktok.com/@kyooqi)
 
 whoever keep on unfollowing me i will find all of you. slash threat.
-
-again, dni or block me if u dont!! like!! my!! interests!!! this is very important so i have to say it twice okay have a nice day
 
 btw a huge revamp is coming soon on almost every github-connected websites i have hehehaha (especially github and prnspage)
 
