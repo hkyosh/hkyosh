@@ -1,5 +1,5 @@
 <p align="center">
-<img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=5c5c5c&label=✧.*&base=2845>
+<img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=a8a8a8&label=✧.*&base=2845>
 </p>
 
 中文/eng = OK! 
