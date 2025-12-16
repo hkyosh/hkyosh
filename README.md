@@ -1,16 +1,18 @@
 <p align="center">
-<img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=A7C0D9&label=✧.*&base=2845>
+<img width="60"src=https://komarev.com/ghpvc/?username=hkyoxo&color=787878&label=✧.*&base=2845>
 </p>
 
 中文/eng = OK! 
 
-byi: sorry if i sometimes dont reply back, i dont rlly find long conversations enjoying unless i'm in the mood for it.
+i made this for ponytown so 
 
-dni: basic dni criteria + if you dislike any of my interests
+! - c+h encouraged. w2i tho i'm always offtab so itll kinda take me forever to reply sorry,,
 
-follow me/be my oomf to get free strawberry🍓🍓 [twitter](https://x.com/shy4uo) , [tiktok](https://www.tiktok.com/@kyooqi)
+dni: basic dni criteria
 
-whoever keep on unfollowing me i will find all of you. slash threat.
+follow me/be my oomf to get free meals from me idfk [twitter](https://x.com/shy4uo) , [tiktok](https://www.tiktok.com/@kyooqi)
+
+whoever keep on unfollowing me i will find all of you. this is a threat.
 
 btw a huge revamp is coming soon on almost every github-connected websites i have hehehaha (especially github and prnspage)
 
