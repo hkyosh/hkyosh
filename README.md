@@ -8,8 +8,6 @@ i made this for ponytown so
 
 ! - c+h encouraged. w2i tho i'm always offtab so itll kinda take me forever to reply sorry,,
 
-dni: basic dni criteria
-
 follow me/be my oomf to get free meals from me idfk [twitter](https://x.com/shy4uo) , [tiktok](https://www.tiktok.com/@kyooqi)
 
 whoever keep on unfollowing me i will find all of you. this is a threat.
