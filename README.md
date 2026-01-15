@@ -12,7 +12,7 @@ follow me/be my oomf to get free meals from me idfk [twitter](https://x.com/shy4
 
 whoever keep on unfollowing me i will find all of you. this is a threat.
 
-btw a huge revamp is coming soon on almost every github-connected websites i have hehehaha (especially github and prnspage)
+ill rmk my github and prnspage layout one day ok
 
 and i swear ill stop changing my github user okay forgive me
 
