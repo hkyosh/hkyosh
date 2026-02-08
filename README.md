@@ -24,6 +24,11 @@
     <p align="center">
       textextetxt
     </p>
+    <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iaeuhibo5qdvzg4taan4e5ev4m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=696969&bar_color_cover=false">
+  </a>
+</p>
   </body>
 </html>
 
