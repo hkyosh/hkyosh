@@ -22,7 +22,7 @@
               <img src=https://i.postimg.cc/TYNCw9TT/8ojruc.gif>
         </p>
     <p align="center">
-      textextetxt
+      <a href="https://x.com/shy4uo">twitter</a> , <a href="https://www.tiktok.com/@kyooqi">tiktok</a>
     </p>
     <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
