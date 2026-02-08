@@ -18,6 +18,9 @@
     <p align="center">
       <img width="500"src="https://i.postimg.cc/gjRtdYnb/f196a2afa49d03fbbc985ac19682a79b.jpg">
     </p>
+    <p align="center">
+      <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>
+    </p>
         <p align="center">
           call me kyo, 凄 (qī), whatever you want to call me. 
         </p>
