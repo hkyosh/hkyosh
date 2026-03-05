@@ -26,9 +26,6 @@
         </p>
             <p align="center">
               he/they, estj, bigender + demisexual.
-            </p>
-                <p align="center">
-                  hehehaha i am literally sherlock holmes from mtp
                 </p>
     <p align="center">
       <a href="https://x.com/shy4uo">twitter</a> , <a href="https://www.tiktok.com/@kyooqi">tiktok</a>
