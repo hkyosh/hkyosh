@@ -21,12 +21,6 @@
     <p align="center">
       <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>
     </p>
-        <p align="center">
-          call me kyo, 凄 (qī), whatever you want to call me. 
-        </p>
-            <p align="center">
-              he/they, estj, bigender + demisexual.
-                </p>
     <p align="center">
       <a href="https://x.com/shy4uo">twitter</a> , <a href="https://www.tiktok.com/@kyooqi">tiktok</a>
     </p>
