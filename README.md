@@ -1,22 +1,22 @@
 <html>
   <head>
     <p align="center">
-      <img width="60"src=https://komarev.com/ghpvc/?username=hkyosh&color=965342&label=✧.*&base=10607>
+      <img width="60"src=https://komarev.com/ghpvc/?username=hkyosh&color=a16857&label=✧.*&base=10607>
     </p>
   </head>
 
   <body>
         <p align="center">
-              . <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>  ——  <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>  ——  <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif> .
+              . <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>  ——  <img src=https://cdn.discordapp.com/emojis/1026957365767065621.webp?size=28&quality=lossless>  ——  <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif> .
         </p>
         <p align="center">
-      " 让心跳，烧的再旺一点！ " <img src=https://i.postimg.cc/QtNT12qw/72ous7.gif>
+     <img src=https://cdn.discordapp.com/emojis/1073106780906864681.webp?size=28&quality=lossless>　 " 让心跳，烧的再旺一点！ " 　<img src=https://cdn.discordapp.com/emojis/1026956161993424978.webp?size=28&quality=lossless>
     </p>
     <p align="center">
       !not done with the layout/pictures yet!
     </p>
     <p align="center">
-      <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>
+      <img src=https://cdn.discordapp.com/emojis/1118241170229833748.webp?size=28&quality=lossless>
     </p>
     <p align="center">
       <a href="https://x.com/shy4uo">twitter</a> , <a href="https://www.tiktok.com/@kyooqi">tiktok</a>
