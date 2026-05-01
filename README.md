@@ -6,21 +6,10 @@
   </head>
 
   <body>
-        <p align="center">
-              . <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif>  ——  <img src=https://cdn.discordapp.com/emojis/1026957365767065621.webp?size=28&quality=lossless>  ——  <img src=https://i.postimg.cc/Kz708h8W/i829bp.gif> .
-        </p>
-        <p align="center">
-     <img src=https://cdn.discordapp.com/emojis/1073106780906864681.webp?size=28&quality=lossless>　 " 让心跳，烧的再旺一点！ " 　<img src=https://cdn.discordapp.com/emojis/1026956161993424978.webp?size=28&quality=lossless>
-    </p>
     <p align="center">
-      !not done with the layout/pictures yet!
+    layout wip
     </p>
-    <p align="center">
-      <img src=https://cdn.discordapp.com/emojis/1118241170229833748.webp?size=28&quality=lossless>
-    </p>
-    <p align="center">
-      <a href="https://x.com/shy4uo">twitter</a> , <a href="https://www.tiktok.com/@kyooqi">tiktok</a>
-    </p>
+           </p>
     <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31iaeuhibo5qdvzg4taan4e5ev4m&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffffff&interchange=false&profanity=false&bar_color=696969&bar_color_cover=false">
